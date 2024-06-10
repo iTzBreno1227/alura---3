@@ -13,4 +13,3 @@ Como entrar em contato: 0000107736412xsp@al.educacao.sp.gov.br
 
 ![jorlanvieira-jorlan](https://github.com/iTzBreno1227/alura---3/assets/172309493/bd6b6b67-6727-40fe-925a-a1efe1111c3d)
 ![dance](https://github.com/iTzBreno1227/alura---3/assets/172309493/c09050b6-0b2f-4622-9d89-d8d0787c5e2a)
-![little-big-planet-suprised](https://github.com/iTzBreno1227/alura---3/assets/172309493/c6fc0a09-2345-4a67-b3aa-1d38d659f9c9)
